@@ -1,6 +1,6 @@
 ﻿**Java-Code**
 
-For my Study purpose I do this codeing. and also gain the technical Knowledge...
+For my Study purpose I do this coding and also gain the technical Knowledge...
 
 **My LinkedIn Profile** : [https://www.linkedin.com/in/darshan-chavda-9097a7245/]
 
